@@ -1,0 +1,1 @@
+# StickerSmashPolo2
